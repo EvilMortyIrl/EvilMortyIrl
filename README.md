@@ -1,5 +1,7 @@
 <div align="center">
 
+[![image-(6).png](https://i.postimg.cc/g0q8pKkH/image-(6).png)](https://postimg.cc/KKjRrBT1)
+
 [![389-sin-titulo-20260909200257.png](https://i.postimg.cc/jSxMBCXT/389-sin-titulo-20260909200257.png)](https://postimg.cc/bs50tyWV)
 
 <a href="https://hits.sh/github.com/PoobKitty/"><img alt="Hits" src="https://hits.sh/github.com/PoobKitty.svg?style=for-the-badge&label=portals&extraCount=102589&color=BA810F&labelColor=0D0B0C"/></a>
