@@ -6,7 +6,7 @@
 
 <a href="https://hits.sh/github.com/PoobKitty/"><img alt="Hits" src="https://hits.sh/github.com/PoobKitty.svg?style=for-the-badge&label=portals&extraCount=102589&color=BA810F&labelColor=0D0B0C"/></a>
 
-${\textsf{\color{#BA810F} 𝐬heㅤ𝐡e}}$ ${\textsf{\color{#0D0B0C}ㅤ𝐳am or 𝐦ort }}$
+${\textsf{\color{#BA810F} 𝐟orgot things can be beautiful}}$ ${\textsf{\color{#0D0B0C}𝐢 forgot it was an option. }}$
 
 <a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=876115&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> 
 <a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=1D1700&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a>
