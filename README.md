@@ -8,7 +8,7 @@
 
 ${\textsf{\color{#BA810F} 𝐟orgot things can be beautiful}}$ ${\textsf{\color{#0D0B0C}𝐢 forgot it was an option. }}$
 
-<a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=876115&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> 
+<a href="https://evilmortyirl.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=876115&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> 
 <a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=1D1700&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a>
 
 
