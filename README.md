@@ -10,3 +10,6 @@ ${\textsf{\color{#BA810F} 𝐬heㅤ𝐡e}}$ ${\textsf{\color{#0D0B0C}ㅤ𝐳am o
 
 <a href="https://princezamm.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=876115&center=true&vCenter=true&width=200&height=30&lines=atabook" alt="Typing SVG" /></a> 
 <a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=1D1700&center=true&vCenter=true&width=200&height=30&lines=prns.page" alt="Typing SVG" /></a>
+
+
+[![392-sin-titulo-20260909210436.png](https://i.postimg.cc/FzZGWQwd/392-sin-titulo-20260909210436.png)](https://postimg.cc/BPjxbRS4)
