@@ -10,7 +10,7 @@
 
 𖹭ㅤㅤ*8 / 1O*
 
-ㅤ ㅤ<a href="https://evilmortyirl.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FFEFBB&center=true&vCenter=true&width=200&height=30&lines=ata" alt="Typing SVG" /></a><a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=ED8A84&center=true&vCenter=true&width=200&height=30&lines=prns" alt="Typing SVG" /></a><a href="https://therealevil.straw.page/home"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=986E95&center=true&vCenter=true&width=200&height=30&lines=straw" alt="Typing SVG" /></a>
+ㅤㅤ<a href="https://evilmortyirl.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FFEFBB&center=true&vCenter=true&width=200&height=30&lines=ata" alt="Typing SVG" /></a>ㅤㅤ<a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=ED8A84&center=true&vCenter=true&width=200&height=30&lines=prns" alt="Typing SVG" /></a>ㅤㅤ<a href="https://therealevil.straw.page/home"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=986E95&center=true&vCenter=true&width=200&height=30&lines=straw" alt="Typing SVG" /></a>
 ㅤ
 
 [![467-sin-titulo-20261120201231.png](https://i.postimg.cc/PrPt9gdN/467-sin-titulo-20261120201231.png)](https://postimg.cc/SJbFzt2p)
