@@ -8,7 +8,7 @@
 
 𝐳am & 𝐣essㅤ‎ ྀㅤ he she
 
-𖹭ㅤㅤ*8 / 1O*
+𖹭ㅤㅤ*dniuf + iwc*
 
 ㅤㅤ<a href="https://evilmortyirl.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=FFEFBB&center=true&vCenter=true&width=200&height=30&lines=ata" alt="Typing SVG" /></a>ㅤ<a href="https://en.pronouns.page/@rejected"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=ED8A84&center=true&vCenter=true&width=200&height=30&lines=prns" alt="Typing SVG" /></a>ㅤ<a href="https://therealevil.straw.page/home"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=13&duration=1&pause=5000&color=986E95&center=true&vCenter=true&width=200&height=30&lines=straw" alt="Typing SVG" /></a>
 ㅤ
